@@ -1,1 +1,3 @@
-# Privacy-policy
+YB-Shooting - Privacy-policy
+
+YB-Shooting   Respect and protect the personal privacy of all users of the service. In order to provide you with more accurate and personalized services, eating sushi every day will use and disclose your personal information in accordance with the provisions of this privacy policy. But eating sushi every day will treat this information with a high degree of diligence and prudence. Except as otherwise provided in this privacy policy, eating sushi every day will not disclose or provide such information to third parties without your prior permission. Eating sushi every day will update this privacy policy from time to time When you agree to the daily sushi service agreement, you are deemed to have agreed to the entire content of this privacy policy. This privacy policy is an integral part of the daily sushi service agreement.
